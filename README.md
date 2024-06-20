@@ -1,0 +1,1 @@
+# GeneXus_Training
